@@ -11,4 +11,6 @@ Argentina
 
 Bolivia 
 
-USA LATAM VCs 
+USA LATAM VCs engaged 
+
+key person in the region in contacts 2+ years https://br.linkedin.com/in/antony-minkowski 
